@@ -49,4 +49,6 @@ This guide serves educational purposes only. It aims to provide insight into dar
 
 
 
-Update:  18.09.2025 The link is now clickable and working fine.
+
+
+Update:  Wednesday 01 October 2025
